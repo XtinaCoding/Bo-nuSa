@@ -6,7 +6,6 @@ If you have any ideas or suggestions about our application,please contact us.
 
 Contact us
 
-Tel:+(86)15600913125
 E-mail:gallup_su58337@sina.com
 
 
